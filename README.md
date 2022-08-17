@@ -7,7 +7,7 @@
 
 ### 🙋‍♂️ About Me :
 
-- 🌍 I'm based in Córdoba, Argentina.
+- 🌍 I live in Córdoba, Argentina.
 - 💻 I'm currently looking for a job.
 - 📩 Contact me on [LinkedIn](http://www.linkedin.com/in/mateocapdevila) or Email : mateo.capdevila2801@gmail.com
 - ⚡ Fun fact I love to play instruments and everything related to music.
